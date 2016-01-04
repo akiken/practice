@@ -1,3 +1,3 @@
 Using for your practice of repository.
 
-2016.01.04 �ҏW
+2016.01.04 編集
